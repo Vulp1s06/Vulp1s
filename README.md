@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Vulp1s06
+- 👀 I’m interested in Python coding.
+- 🌱 I’m currently learning everything about life.
+- 💞️ I’m looking to collaborate on tinder.
+- 📫 How to reach me: bariscihanoglu4@gmail.com
